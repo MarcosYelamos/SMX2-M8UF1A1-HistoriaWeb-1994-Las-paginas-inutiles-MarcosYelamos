@@ -1,6 +1,6 @@
 # Las páginas inútiles    
 
-## ¿Que fue?
+## ¿Qué fue?
 
 Fue una lista de enlaces a páginas web que eran consideradas inútiles. Esta página web hizo que se difundieran muchos de los primeros memes.
 
